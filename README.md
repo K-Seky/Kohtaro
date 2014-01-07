@@ -1,1 +1,1 @@
-関紘太郎のwikiページです。
+SportsShootingの担当箇所ファイルです。
